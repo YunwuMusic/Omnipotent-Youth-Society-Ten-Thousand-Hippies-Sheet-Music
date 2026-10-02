@@ -1,2 +1,1 @@
-# Omnipotent-Youth-Society-Ten-Thousand-Hippies-Sheet-Music
-万能青年旅店 - 十万嬉皮 (谱子)
+https://flat.io/score/6a5635fbfa19c3b01924b12f-wan-neng-qing-nian-lu-dian-shi-wan-xi-pi-zong-le-pu
